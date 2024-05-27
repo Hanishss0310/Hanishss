@@ -1,2 +1,0 @@
-# Hanishss
-Prathik website
